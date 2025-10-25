@@ -1,1 +1,1 @@
-No description yet
+Fun little project to prank friends or family (or strangeres, you do you)
